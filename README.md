@@ -1,4 +1,4 @@
-### Hi there 👋
+Experience in Hospitality, Event Management, Entrepreneurship & Full Stack Developement.
 
 <!--
 **simk2020/simk2020** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
